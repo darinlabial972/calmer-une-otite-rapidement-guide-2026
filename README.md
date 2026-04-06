@@ -11,7 +11,7 @@
 
 ## 📖 Lire le guide complet
 
-➡️ **[Comment calmer une otite rapidement ? Le guide complet 2026](https://femininsante.com/comment-calmer-une-otite-rapidement/)**
+➡️ **[Comment calmer une otite rapidement ? Le guide complet 2026](https://feminin-sante.github.io/calmer-une-otite-rapidement-guide-2026/)**
 
 ---
 
@@ -102,7 +102,7 @@ Toutes les images intégrées proviennent exclusivement de **[femininsante.com](
 
 ## 🔗 Ressource principale
 
-**➡️ [Comment calmer une otite rapidement ? — Féminin Santé](https://femininsante.com/comment-calmer-une-otite-rapidement/)**
+**➡️ [Comment calmer une otite rapidement ? — Féminin Santé](https://feminin-sante.github.io/calmer-une-otite-rapidement-guide-2026/)**
 
 ---
 
